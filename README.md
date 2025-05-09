@@ -1,3 +1,6 @@
+##this week was so horrible 
+couldnt do anything 
+im not gonna do week 4 
 
 
 ## 📅 Week 3: Advanced Concepts Mastery
